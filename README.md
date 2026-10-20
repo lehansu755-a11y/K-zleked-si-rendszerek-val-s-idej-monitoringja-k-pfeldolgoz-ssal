@@ -1,0 +1,1 @@
+# K-zleked-si-rendszerek-val-s-idej-monitoringja-k-pfeldolgoz-ssal
